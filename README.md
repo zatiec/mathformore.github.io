@@ -16,3 +16,7 @@ Contrary to popular belief, mathematics is not merely a rigid set of rules and p
 
 Fostering Inclusivity and Equity:
 In an increasingly interconnected and data-driven world, the ability to understand and utilize mathematics is more critical than ever. However, access to quality mathematics education remains unequal, disproportionately impacting marginalized communities and perpetuating socio-economic disparities. By advocating for equitable access to mathematics education and promoting diverse representation in the mathematical community, we can empower individuals from all backgrounds to realize their full potential and contribute meaningfully to society.
+
+Our Sites:
+https://sites.google.com/view/mathnmore/home_1
+
